@@ -1,0 +1,7 @@
+![Screenshot_20251021_115519.png](screenshots/Screenshot_20251021_115519.png)
+![Screenshot_20251021_115745.png](screenshots/Screenshot_20251021_115745.png)
+![Screenshot_20251021_115823.png](screenshots/Screenshot_20251021_115823.png)
+![Screenshot_20251021_115834.png](screenshots/Screenshot_20251021_115834.png)
+![Screenshot_20251021_115846.png](screenshots/Screenshot_20251021_115846.png)
+![Screenshot_20251021_115903.png](screenshots/Screenshot_20251021_115903.png)
+![Screenshot_20251021_115915.png](screenshots/Screenshot_20251021_115915.png)
